@@ -1,2 +1,2 @@
 # pruebagithub
-hola como estas
+hola como estas, espero no del todo mal, sigo esperando la postal...
